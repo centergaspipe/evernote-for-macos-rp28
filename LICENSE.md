@@ -1,4 +1,4 @@
-
+Enhance Evernote for macOS with Evernote for macOS premium Integration: collaboration & tags, the #1 integration. Includes collaboration and tags for a smoother experience.
 
 
 
